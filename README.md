@@ -1,2 +1,2 @@
 # Work-As-Flutter-Dev.
-My daily Work Job Schedule 
+DAY 1 - UNDERSTANDING AND ORGANIZING  MYSELF As A FRESH NEW DFEVELOPER
